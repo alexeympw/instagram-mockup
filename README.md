@@ -45,4 +45,4 @@ This is an improved version of our best-seller [Instagram mockup 2019](https://c
 
 ### If you need some specific screen to ask about it in comments.
 
-[Download Instagram Mockup] (https://code.market/product/instagram-mockup-2020-download-psd/)
+[Download Instagram Mockup](https://code.market/product/instagram-mockup-2020-download-psd/)
