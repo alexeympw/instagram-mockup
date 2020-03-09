@@ -1,6 +1,6 @@
 # instagram Mockup Free Download
 
-[Download Instagram Mockup] (https://code.market/product/instagram-mockup-2020-download-psd/)
+[Download Instagram Mockup](https://code.market/product/instagram-mockup-2020-download-psd/)
 
 ![Instagram Mockup 2020 PSD download](https://code.market/wp-content/uploads/2019/12/Instagram-mockup-1-1024x855.png)
 ![Instagram mockup 2020 free download screens](https://code.market/wp-content/uploads/2019/12/Instagram-mockup-screens.png)
